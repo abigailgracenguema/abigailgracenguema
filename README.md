@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @abigailgracenguema
-- 👀 I’m interested in animation, design, music digital art and drawing 
+- 👀 I’m interested in animation, design, music, digital art and drawing 
 - 🌱 I’m currently learning Coding and design
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me nguema.abigail@gmail.com 
